@@ -19,7 +19,7 @@ En Previemos, nos preocupamos por la calidad y autenticidad de nuestros producto
 Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de nuestros clientes. Por ello, también ofrecemos una selección de bebidas sin alcohol, como refrescos, aguas minerales, jugos naturales y opciones saludables.
 
 Sin dejar pasar que tendras una opcion imperdible de una membresia vip, al club previemos, con la cual te ortagamos una tarjeta que te permitira alcanzar **PROMOCIONES** y/o **DESCUENTOS** por tan solo 599$ 
-                                                                                     **¿¡TE LO VAS A PERDER!?**
+ ___                                                                                   **¿¡TE LO VAS A PERDER!?**
 
 ## Publico Objetivo: 
 
