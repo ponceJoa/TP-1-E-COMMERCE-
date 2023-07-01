@@ -31,4 +31,8 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 * Ventas minoristas a todo tipo de cliente mayor de 18 años.
 
-### LOGO
+### Tipografia
+
+### Paleta de Colores
+
+### Logo
