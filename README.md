@@ -2,7 +2,7 @@
 
 ## Algunas Cositas que nos gustaria que sepas
 
-"¡Bienvenidos a Previemos, tu destino para disfrutar de las mejores bebidas 
+"¡Bienvenidos a Previemos, tu destino para disfrutar de las mejores bebidas !"
 
 En Previemos, nos apasiona brindar una experiencia excepcional a nuestros clientes, ofreciendo una amplia selección de bebidas de alta calidad y un servicio personalizado.
 
@@ -22,7 +22,7 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ## Publico Objetivo: 
 
--Ventas mayorista para eventos y/o fiestas.
+*Ventas mayorista para eventos y/o fiestas.
 
--Ventas minoristas a todo tipo de cliente mayor de 18 años.
+*Ventas minoristas a todo tipo de cliente mayor de 18 años.
 
