@@ -22,7 +22,7 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ## Publico Objetivo: 
 
-+Ventas mayorista para eventos y/o fiestas.
+-Ventas mayorista para eventos y/o fiestas.
 
-+Ventas minoristas a todo tipo de cliente mayor de 18 años.
+-Ventas minoristas a todo tipo de cliente mayor de 18 años.
 
