@@ -20,7 +20,7 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
   - Sin dejar pasar que tendras una opcion imperdible de una membresia vip, al club previemos, con la cual te ortagamos una tarjeta que te permitira alcanzar **PROMOCIONES** y/o **DESCUENTOS** por tan solo 599$
 ___
-**TE LO VAS A PERDER?!!**
+__                                            **TE LO VAS A PERDER?!!**
 
                                                                                         
 
