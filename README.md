@@ -33,7 +33,7 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ### Tipografia
 
-  _ Varela Round
+  - Varela Round
 
 ### Paleta de Colores
 
