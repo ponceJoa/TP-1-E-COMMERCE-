@@ -37,4 +37,8 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ### Paleta de Colores
 
+#070D59 - #E9CD4C - #F4F4F8 - #000000 - #A6A3A7
+
 ### Logo
+
+
