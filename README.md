@@ -41,5 +41,5 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ###  Logo
 
-   ![Logo](https://logo-maker.freelogodesign.org/es/logo/edit/cb4451776ac74ef6815d1755d4b5c38e)
+   ![Logo](https://cdn.freelogodesign.org/files/9677764d85c741a58bf49c834179c3ab/thumb/logo_200x200.png?v=638239424440000000)
 
