@@ -41,5 +41,5 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ### Logo
 
-!(file:///C:/Users/RTECH/Downloads/8e6a0909bc8842538014b9290d7f48b4.png)
+![LogoDelLocal](file:///C:/Users/RTECH/Downloads/8e6a0909bc8842538014b9290d7f48b4.png)
 
