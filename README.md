@@ -41,5 +41,5 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ### Logo
 
-  ![](https://es.freelogodesign.org/manager/logos/8e6a0909bc8842538014b9290d7f48b4/download/logo_free)
+  ![Logp](https://es.freelogodesign.org/manager/logos/8e6a0909bc8842538014b9290d7f48b4/download/logo_free)
 
