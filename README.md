@@ -41,5 +41,5 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
 ### Logo
 
- ![Logo Del Local](https://es.freelogodesign.org/manager/logos/8e6a0909bc8842538014b9290d7f48b4/download/logo_free)
+ ![Logo Del Local]("C:\Users\RTECH\Downloads\8e6a0909bc8842538014b9290d7f48b4 (3).png")
 
