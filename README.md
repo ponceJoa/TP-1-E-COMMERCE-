@@ -43,3 +43,6 @@ Nos esforzamos por mantenernos al día con las últimas tendencias y demandas de
 
    ![Logo](https://cdn.freelogodesign.org/files/9677764d85c741a58bf49c834179c3ab/thumb/logo_200x200.png?v=638239434570000000)
 
+
+   
+Link de Figma : https://www.figma.com/file/bBquv3zKN1XnBMf7mr8iNj/Taller-Figma?type=design&node-id=21-1436&mode=design&t=60zVw9SdEFpyOgpI-0
